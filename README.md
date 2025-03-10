@@ -1,1 +1,1 @@
-# IKASHINI14092004-Recipe-sharing-platform-project-EYP6
+# Recipe-sharing-platform-project-EYP6
